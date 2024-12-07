@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @i-am-p
+- 👀 I’m interested in nothing
+- 🌱 I’m currently learning php
+- 💞️ I’m looking to collaborate on codes
+- 📫 How to reach me txt me
+- 😄 Pronouns: idk
+- ⚡ Fun fact: im dead.
